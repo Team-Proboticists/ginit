@@ -152,7 +152,63 @@ Now for my hobbies, I have a particular interest in hating all forms of coding l
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Why are you trying to find my picture. I gave you my introduction didn't I??
 
-!\[Here I Am](Why Are You Showing Interest In My Photo.jpeg)
+!\[Here I Am](Highly Jeopardised.jpeg)
+
+Since you are here let me share more. These pictures are some of my finest ones.
+
+!\[Billa Party](BC Roy Companion.jpeg)
+
+|\[Pushpa](Some flower in Nepal.jpeg)
 
