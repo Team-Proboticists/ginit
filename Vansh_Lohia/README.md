@@ -10,4 +10,4 @@ I dont have a favourite programing language. I just use them to get stuff done, 
 
 Oh and obviously I like robotics and ML. Not sure which subdomain though, period.
 
-
+PS pls official purposes ke liye 'Vansh' wali photo lelena 💀
