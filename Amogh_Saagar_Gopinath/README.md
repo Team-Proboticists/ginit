@@ -1,0 +1,1 @@
+I am Amogh Saagar Gopinath. I am a 2nd year UG from E&ECE department. My interests are history and solving puzzles. My hobbies include chess, coding, cycling and reading. My favorite programming language is python. 
