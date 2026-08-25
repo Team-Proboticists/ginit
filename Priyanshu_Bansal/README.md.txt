@@ -1,0 +1,1 @@
+My name is Priyanshu Bansal. I am a second year Undergraduate Student of the department of Electrical Engineering. My Interests include exploring AI/ML, Robotics and playing sports. I like to play Basketball and Table Tennis. My favourite programming language is Python. I am always curious to learn stuff and am always excited to meet new people.
