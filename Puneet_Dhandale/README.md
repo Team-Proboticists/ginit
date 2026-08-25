@@ -7,7 +7,7 @@ Fine Art and Creativity. Growing up on animated movies, cartoons, and paintings.
 I do weight training, and running. On the creative side, I love painting, sketching, writing essays and Hindi poetry.
 
 **Favorite Programming Languages**
-Python
+Python!
 
 
 
