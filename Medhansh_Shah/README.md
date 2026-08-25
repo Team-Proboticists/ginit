@@ -1,0 +1,3 @@
+Hello everyone !!!
+My name is Medhansh Shah. I am a second year undergraduate student of the department of civil engineering enrolled in its B-tech course. I am a boarder of Gokhale Hall of Residence. I am from Thane, Maharashtra. 
+I am figuring out of my life with my interest lying in robotics....
