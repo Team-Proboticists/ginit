@@ -1,0 +1,1 @@
+Hi my name is Aditya Tyagi .  I am 2nd yr undergraduate student of the Electrical Department . I have interset in robotics , graphics , gamedev , web, computing ... basically everything related to Tech . Currently my hobbies are just scrolling reels or watching movies/anime . My favourite programming language is cpp . 
