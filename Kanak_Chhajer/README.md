@@ -1,0 +1,1 @@
+Kanak Chhajer 2nd year undergrad from the department Electrical Engineering I am quite interested in robotics specifically cv and controls, I spend my free time listening to music (am, tame impala), and if i am realllyy free i play video games (hk, hk silksong, outerwilds, messenger are a few that i liked playing), my favorite programming language is python.
